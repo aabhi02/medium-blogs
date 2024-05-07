@@ -1,4 +1,4 @@
-# My Blogs on [Medium](https://medium.com/@abhishek.a2080)
+# My Blogs on [Medium](https://medium.com/@aabhi02)
 
 List of all my blogs with dates posted.
 
